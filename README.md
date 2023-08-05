@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @RiddhiSinha7m
+- 👋 Hi, I’m @RiddhiSinha
 
